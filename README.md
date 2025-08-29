@@ -1,1 +1,0 @@
-# telugu-culinary-app2
